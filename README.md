@@ -4,12 +4,17 @@ I Am a MINOR. Please Do not INteract with me With NSFW/Innapropriate Topics, I A
 I Realize that I have A Typing Quirk, Please do not Harass me For it. I am Sorry if it Is Hard to Read.
 
 # DO NOT INTERACT IF YOU ARE:
-**PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
-I realize the last one might be a bit hypocritical because of an incident, but I want to say that I deeply apologize to ones I've hurt without realizing their boundaries come from a genuine place. I participated in a harassment of you out of the need to be relatable, I believe I can change, I am sorry again.
+### **PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
+I prefer Russian people to Stay away from me Please! I Play on English Servers just to Avoid you as I Feel Uncomfortable with It. I am ok with You Talking to me Sometimes But Dont Be surprised If I Hide/Block you. Sorry.
+## IF I FOUND OUT YOU BROKE MY DNI ON PURPOSE:
+I will BLOCK YOU!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! I Don't car If you Wanted to Be My friend I Do not Want to Be Your friend if You Disrespect My Boundaries!!! The only Reason I will Not Block you is if You Admit your Mistake.! I will not Want to Chat With you.
 
-# tbc
+## I have Some AUs That I Have Outfits of. Those include:
+BNAUDR: My AU!!!!!!! tO lEARN MOre About it See my Twitter.... Or... Heh... Ask me... 😘😘😘😘😘
 
-# 📫 How to reach me:
+#OnionBoyIsTheBest #Onions #FollowMeOnTwitterPlease
+
+# IF you Want TO Reach ME!!! :
 You can Reach me On Discord (Ye_KoSa), and You Can also DM me On Twitter (@Ye_KoSa)! 
 
 <!--
