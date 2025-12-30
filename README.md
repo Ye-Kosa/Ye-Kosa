@@ -6,7 +6,10 @@ I Realize that I have A Typing Quirk, Please do not Harass me For it. I am Sorry
 # DO NOT INTERACT IF YOU ARE:
 ### **PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
 I prefer Russian people to Stay away from me Please! I Play on English Servers just to Avoid you as I Feel Uncomfortable with It. I am ok with You Talking to me Sometimes But Dont Be surprised If I Hide/Block you. Sorry.
-## IF I FOUND OUT YOU BROKE MY DNI ON PURPOSE:
+
+If I Compliment You and You Reply In Russian I will understand My Mistake, I Might hide You Later Because It would be Awkward to Hide you Immediatelly After.
+
+#### IF I FOUND OUT YOU BROKE MY DNI ON PURPOSE:
 I will BLOCK YOU!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! I Don't car If you Wanted to Be My friend I Do not Want to Be Your friend if You Disrespect My Boundaries!!! The only Reason I will Not Block you is if You Admit your Mistake.! I will not Want to Chat With you.
 
 ## I have Some AUs That I Have Outfits of. Those include:
