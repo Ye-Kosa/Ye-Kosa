@@ -4,6 +4,9 @@
 I Am a MINOR. Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
 I Realize that I have A Typing Quirk, Please do not Harass me For it. I am Sorry if it Is Hard to Read.
 
+# I Am Open To:
+Non-Sexual Roleplay, platonic/romantic (as long as in character) s fine. I do not Mind Roleplaying With you if You Are not My Friend, so if you #NeedSpamton for a Roleplay, You can Ask me.......... heh...........
+
 # DO NOT INTERACT IF YOU ARE:
 ### **PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
 I prefer Russian people to Stay away from me Please! I Play on English Servers just to Avoid you as I Feel Uncomfortable with It. I am ok with You Talking to me Sometimes But Dont Be surprised If I Hide/Block you. Sorry.
