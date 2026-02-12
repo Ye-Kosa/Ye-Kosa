@@ -1,8 +1,9 @@
-# It's my HATEFUL MOnth Do not Make me Sad
+# 
 
 ### Disclaimer!!!
-I Am a MINOR. Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
+I Am a MINOR (14). Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
 I Realize that I have A Typing Quirk, Please do not Harass me For it. I am Sorry if it Is Hard to Read.
+PLEASE Im Begging you Do not out of Nowhere Start talking about Self Harm or suicide Unless I am in A Party with you.
 
 # I Am Open To:
 Non-Sexual Roleplay, platonic/romantic (as long as in character) s fine. I do not Mind Roleplaying With you if You Are not My Friend, so if you #NeedSpamton for a Roleplay, You can Ask me.......... heh...........
