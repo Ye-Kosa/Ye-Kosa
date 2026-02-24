@@ -1,4 +1,4 @@
-# 
+# RUSSIANS DNI I AM SO SERIOUS NOT TODAY
 
 ### Disclaimer!!!
 I Am a MINOR (14). Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
