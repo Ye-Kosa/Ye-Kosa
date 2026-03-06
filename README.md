@@ -1,4 +1,4 @@
-# RUSSIANS DNI I AM SO SERIOUS NOT TODAY
+# My Accepting Month ❤️❤️ Russians... Maybe Interact... 👀👀
 
 ### Disclaimer!!!
 I Am a MINOR (14). Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
@@ -9,7 +9,7 @@ PLEASE Im Begging you Do not out of Nowhere Start talking about Self Harm or sui
 Non-Sexual Roleplay, platonic/romantic (as long as in character) s fine. I do not Mind Roleplaying With you if You Are not My Friend, so if you #NeedSpamton for a Roleplay, You can Ask me.......... heh...........
 
 # DO NOT INTERACT IF YOU ARE:
-### **ACTIVELY SPEAK RUSSIAN ON ENGLISH SERVERS AROUND ME, PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
+### **PRO-RUSSIAN, PRO-ISRAEL, HOMOPHOBIC, TRANSPHOBIC, do PROSHIP/CONSHIP, HARASS PEOPLE FOR THEIR BOUNDARIES.** 
 I prefer Russian people to Stay away from me Please! I Play on English Servers just to Avoid you as I Feel Uncomfortable with It. I am ok with You Talking to me Sometimes But Dont Be surprised If I Hide/Block you. I am NOT Sorry. Do not Come Up to me And Start Harassing me For that shit Ok I am Already Pissed Off.
 
 If I Compliment You and You Reply In Russian I will understand My Mistake, I Might hide You Later Because It would be Awkward to Hide you Immediatelly After.
