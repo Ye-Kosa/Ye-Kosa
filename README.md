@@ -1,5 +1,3 @@
-# My Accepting Month ❤️❤️ Russians... Maybe Interact... 👀👀
-
 ### Disclaimer!!!
 I Am a MINOR (14). Please Do not INteract with me With NSFW/Innapropriate Topics, I Am not comfortable With That.
 I Realize that I have A Typing Quirk, Please do not Harass me For it. I am Sorry if it Is Hard to Read.
@@ -27,7 +25,7 @@ BNAUDR: My AU!!!!!!! tO lEARN MOre About it See my Twitter.... Or... Heh... Ask 
 #OnionBoyIsTheBest #Onions #FollowMeOnTwitterPlease
 
 # IF you Want TO Reach ME!!! :
-You can Reach me On Discord (Ye_KoSa), and You Can also DM me On Twitter (@Ye_KoSa)! 
+You can Reach me On Discord (Ye_KoSa), and You Can also DM me On Twitter (@kosaside or @ye_kosa)! 
 
 <!--
 **Ye-Kosa/Ye-Kosa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
